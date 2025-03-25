@@ -6,6 +6,11 @@ This project employs the process of color woodblock printing and its ability to 
 
 ![OVERLAY](ASSETS/OVERLAY.jpg)
 
+Date: 12.2017.  
+Technique woodblock print on onion paper.  
+Edition: 2/2.  
+Dimensions: 20 x 20 cm each.  
+
 <br>
 <br>
 
