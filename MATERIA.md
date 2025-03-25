@@ -5,15 +5,15 @@ While matter is our foundation, identity gives us purpose. In the balance betwee
 
 0 - [AUTOMATON](https://aaronrmoreno.github.io/AUTOMATON)
 
-1 - TOUCH
+1 - [TOUCH](https://aaronrmoreno.github.io/TOUCH)
 
-2 - SEAWEED, I & II
+2 - [SEAWEED, I & II](https://aaronrmoreno.github.io/SEAWEEDI&II)
 
-3 - OVERLAY
+3 - [OVERLAY](https://aaronrmoreno.github.io/OVERLAY)
 
-4 - WHAT ARE WE MADE OF
+4 - [WHAT ARE WE MADE OF](https://aaronrmoreno.github.io/WHATAREWEMADEOF)
 
-5 - BELONG
+5 - [BELONG](https://aaronrmoreno.github.io/BELONG)
 
 
 
