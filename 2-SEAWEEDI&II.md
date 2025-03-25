@@ -12,8 +12,19 @@ Date: 03.2017.
 Technique: woodblock print, ink proceed with seaweed, pulverized sand and filtered salt Edition: 1/1.  
 Dimensions: 63 x 113 cm.  
 <br>
+
+-------
+
+
+![SEAWEED](ASSETS/seaweed2.jpeg)
+
+Title: II.  
+PROJECT SEAWEED.  
+Date: 06.2017.  
+Technique: woodblock print, ink proceed with seaweed, pulverized sand and filtered salt Edition: 1/1.  
+Dimensions: 63 x 63 cm.  
+
 <br>
-
-
+<br>
 
 [GO BACK](https://aaronrmoreno.github.io/MATERIA)
