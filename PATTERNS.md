@@ -1,8 +1,8 @@
-PHOTON Line of work No.02
+PATTERNS Line of work No.03
 
-A photon is the elemental particle of light and all forms of electromagnetic radiation. It can be generated naturally or artificially and represents the smallest and indivisible unit of luminous energy. Based on this idea, I created a series of projects with the sole condition of working with light as a narrative medium.
+I design visual systems inspired by loops—narratives that, through repetition, reveal patterns of form, animation, sound, action, or any medium capable of embodying this cyclical property. In the project series PATTERNS, I seek to understand the human experience as a sum of loops of varying sizes, textures, and rhythms, where each repetition holds within it the seed of transformation.
 
-I have always been fascinated by the limits of our perception and the different ways to trick the brain. In this series I used the interaction between light and matter to create that magic: a narrative shaped by reality, illusion and memory. The series invites to reflect on that precise moment when the emitting source is altered, modifying the perceptual outcomes of reality. This series have currently two artwork: PENVMBRA and TOUCH.
+I am particularly interested in that precise moment when the continuity of the cycle is interrupted—the moment when repetition gives way, allowing for something new to emerge. It is in this rupture that the possibility for change and evolution resides. The systems I design reflect this flow: cycles that stretch, distort, and could eventually break, giving place to a narrative of unpredictable consequences. PATTERNS is made out of two pieces: HORIZON and PSYCHLOOP.
 
 0 - 
 
