@@ -1,4 +1,4 @@
-![SEAWEED](SEAWEED/seaweed.png)
+![SEAWEED](SEAWEED/seaweed1.jpg)
 
 
 
