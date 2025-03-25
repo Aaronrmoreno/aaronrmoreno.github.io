@@ -4,17 +4,11 @@ A photon is the elemental particle of light and all forms of electromagnetic rad
 
 I have always been fascinated by the limits of our perception and the different ways to trick the brain. In this series I used the interaction between light and matter to create that magic: a narrative shaped by reality, illusion and memory. The series invites to reflect on that precise moment when the emitting source is altered, modifying the perceptual outcomes of reality. This series have currently two artwork: PENVMBRA and TOUCH.
 
-0 - 
+0 - PENVMBRA
 
-1 - 
+1 - TOUCH
 
-2 - 
-
-3 - 
-
-4 - 
-
-5 - 
+2 - AXIS VISUAL LAB
 
 
 
