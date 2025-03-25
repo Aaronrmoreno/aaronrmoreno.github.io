@@ -5,16 +5,71 @@ It is said that 90% of the information the brain processes is visual, and it doe
 <br>
 
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF1.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF2.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm.  
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF3.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF4.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF5.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF6.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF7.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF8.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF9.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF10.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 ![WHAT ARE WE MADE OF](ASSETS/WHATAREWEMADEOF11.jpeg)
+
+Technique woodblock print on handmade paper made out of cherry blossom resin, cotton fiber.  
+Edition: 1/1.  
+Dimensions: 20 x 35 cm. 
+
 
 <br>
 <br>
