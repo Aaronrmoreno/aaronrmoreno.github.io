@@ -14,6 +14,11 @@ Each page of this series consists of two pieces of handmade paper that, although
 ![BELONG](ASSETS/BELONG4.jpeg)
 ![BELONG](ASSETS/BELONG5.jpeg)
 
+Date: 09.2011.  
+Technique: Handmade organic paper and recycled industrial paper merged in the same sheet.  
+Edition: 1/1
+Dimensions: 20 x 35 cm.  
+
 <br>
 <br>
 
