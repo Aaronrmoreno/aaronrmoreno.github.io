@@ -1,10 +1,10 @@
 this is about you 
 
-BIO 
+[BIO](https://aaronrmoreno.github.io/BIO) 
 
-ARTIST STATMENT
+[ARTIST STATMENT](https://aaronrmoreno.github.io/ARTISTSTATMENT)
 
-CV
+[CV](https://aaronrmoreno.github.io/CV)
 
 
 [GO BACK](https://aaronrmoreno.github.io)
