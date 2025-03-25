@@ -23,7 +23,8 @@ Installation presented at the Künstlerforum in Bonn, Germany. The work consiste
 Title: I.  
 PROJECT TOUCH.  
 Date: 03.06.2022.  
-Technique: Installation, graphite pencils, Arduino board, Mac mini, two copper plaques, sound system Edition: 1/1.  
+Technique: Installation, graphite pencils, Arduino board, Mac mini, two copper plaques, sound system.  
+Edition: 1/1.  
 Dimensions: 120 ~ 140 cm.  
 
 <br>
