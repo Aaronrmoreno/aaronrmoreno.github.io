@@ -4,17 +4,11 @@ I design visual systems inspired by loops—narratives that, through repetition,
 
 I am particularly interested in that precise moment when the continuity of the cycle is interrupted—the moment when repetition gives way, allowing for something new to emerge. It is in this rupture that the possibility for change and evolution resides. The systems I design reflect this flow: cycles that stretch, distort, and could eventually break, giving place to a narrative of unpredictable consequences. PATTERNS is made out of two pieces: HORIZON and PSYCHLOOP.
 
-0 - 
+0 - PSYCHLOOP
 
-1 - 
+1 - HORIZON
 
-2 - 
-
-3 - 
-
-4 - 
-
-5 - 
+2 - AXIS VISUAL LAB
 
 
 
