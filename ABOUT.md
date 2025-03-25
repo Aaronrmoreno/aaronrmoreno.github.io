@@ -1,3 +1,10 @@
 this is about you 
 
-go back
+BIO 
+
+ARTIST STATMENT
+
+CV
+
+
+
