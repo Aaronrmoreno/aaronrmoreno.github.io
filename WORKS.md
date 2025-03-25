@@ -2,10 +2,9 @@ this is the page for your works
 
 [MATERIA](https://aaronrmoreno.github.io/MATERIA)
 
-PHOTON
+[PHOTON](https://aaronrmoreno.github.io/PHOTON)
 
-PATTERNS
-
+[PATTERNS](https://aaronrmoreno.github.io/PATTERNS)
 
 
 
