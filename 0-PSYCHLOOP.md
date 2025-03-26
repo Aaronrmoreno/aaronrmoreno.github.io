@@ -36,3 +36,10 @@ Date: 2018.
 Digital loop animation, GIFs based on the Phenakitiscope.   
 Edition: 1/1.  
 Dimensions: 3000 px x 3000 px.  
+
+<br>
+
+<br>
+
+
+[GO BACK](https://aaronrmoreno.github.io/PATTERNS)
