@@ -11,18 +11,15 @@ work generated is the genesis of the next work to be produced.
 
 <br>
 
-
 ![AUTOMATON](ASSETS/AUTOMATONPRINT1.jpeg)
 
 ![AUTOMATON](ASSETS/AUTOMATONPRINT2.jpeg)
 
-![AUTOMATON](ASSETS/AUTOMATONPRINTgeneral.jpeg)
-
 Date: 05.2023 - 05.2024.  
 Technique: Procedural artwork, woodcut prints on acetate paper, AI (image to text + text to image generator), PLA 3D prints.  
-Dimensions: Original print and matrixes - 10.5x10.5 cm, Acetate - 30x30 cm.  
+Dimensions: Original print and matrixes - 10.5x10.5 cm, Acetate - 30x30 cm. 
 
-<br>
+![AUTOMATON](ASSETS/AUTOMATONPRINTgeneral.jpeg)
 
 ![AUTOMATONIMG01](ASSETS/AUTOMATONIMG01.jpeg)
 
