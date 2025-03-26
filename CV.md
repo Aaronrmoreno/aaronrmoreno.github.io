@@ -3,6 +3,8 @@ C.V.
 Havana,1990  
 Contacts: one7rom@gmail.com
 
+<b>
+
 ### STUDIES 
 2017 – 2023. University of Art of Cuba (ISA), la Habana Cuba.  
 2006 – 2010. Bachelor in Fine Arts at the National Academy of Fine Arts San Alejandro, Havana, Cuba.   
@@ -17,10 +19,12 @@ Contacts: one7rom@gmail.com
 2013 - Recognition Award, “8vo Encuentro Nacional de Grabado Latinoamericano”, Visual Arts Development Center (CDAV), Havana, Cuba.   
 2012 - Semester in the exchange program of Documentary Film Production, Tisch School of the Art (NYU), Havana, Cuba.   
 
+### SOLO EXHIBITION 
+2023 - “Automaton”, solo show at Ludwig Foundation of Cuba and the University of Arts (ISA), Havana, Cuba.  
+
 ### EXHIBITIONS   
 2024 - “Art Exchange Festival 2nd edition”, Galería Artniches, Madrid, Spain.   
 2023 - “Art Exchange Festival 1st edition”, Galería Nueva, Madrid, Spain.   
-2023 - “Automaton”, solo show at Ludwig Foundation of Cuba and the University of Arts (ISA), Havana, Cuba.  
 2023 - “Juana de las Flores”, group show, La Lavandería art space, Havana, Cuba.  
 2022 - “You & Me”, group show, Künstlerforum, Bonn, Germany.  
 2019 - “Latencia”, duo show with Ira Kononenko, Fundación Ludwig de Cuba, Havana, Cuba.  
