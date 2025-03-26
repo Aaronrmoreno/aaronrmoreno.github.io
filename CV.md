@@ -41,7 +41,8 @@ Contacts: one7rom@gmail.com
 2013 - “Concreto 10080”, Norwegian Embassy in Cuba, Havana, Cuba.   
 2013 - “Beta I”, Casa Tomada, Casa de las Américas, Havana, Cuba.   
 
-![image](https://github.com/user-attachments/assets/61ea2a65-416a-4a42-97e0-95f94e969dc1)
+<b>
+<b>
 
 
 [GO BACK](https://aaronrmoreno.github.io/ABOUT)
