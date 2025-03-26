@@ -17,12 +17,6 @@ Contacts: one7rom@gmail.com
 2013 - current. Founder and active member of the interdisciplinary art collective Axis Visuallab.   
 <br>
 
-#### GRANTS AND SCHOLARSHIPS  
-2022 - Semester in new media department at Alanus University of Art and social science (Alanus Hochschule für Kunst und Gesellschaft), Alfter, Germany.   
-2013 - Recognition Award, “8vo Encuentro Nacional de Grabado Latinoamericano”, Visual Arts Development Center (CDAV), Havana, Cuba.   
-2012 - Semester in the exchange program of Documentary Film Production, Tisch School of the Art (NYU), Havana, Cuba.   
-<br>
-
 #### SOLO EXHIBITIONS 
 2023 - “Automaton”, solo show at Ludwig Foundation of Cuba and the University of Arts (ISA), Havana, Cuba.  
 <br>
@@ -37,6 +31,12 @@ Contacts: one7rom@gmail.com
 2016 - “OO”, duo show with artist Theresa Hattinger, Mejunje Gallery, Santa Clara, Cuba.  
 2015 - “12th Havana Biennale”, group show, Casa de Mexico, Havana, Cuba.   
 2013 - “8vo Encuentro Nacional de Grabado Latinoamericano”, Visual Arts Development Center (CDAV), Havana, Cuba.  
+<br>
+
+#### GRANTS AND SCHOLARSHIPS  
+2022 - Semester in new media department at Alanus University of Art and social science (Alanus Hochschule für Kunst und Gesellschaft), Alfter, Germany.   
+2013 - Recognition Award, “8vo Encuentro Nacional de Grabado Latinoamericano”, Visual Arts Development Center (CDAV), Havana, Cuba.   
+2012 - Semester in the exchange program of Documentary Film Production, Tisch School of the Art (NYU), Havana, Cuba.   
 <br>
 
 #### PUBLIC INTERVENTIONS produced with Axis Visuallab.  
