@@ -23,94 +23,94 @@ Dimensions: Original print and matrixes - 10.5x10.5 cm, Acetate - 30x30 cm.
 
 ![AUTOMATONIMG01](ASSETS/AUTOMATONIMG01.jpeg)
 
-Título: INTERACCIÓN 0001.  
-PROYECTO AUTOMATON.  
-fecha: 19.06.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.   
-Edición: 1/3.  
-Dimensiones: 35 x 35cm.  
+Tittle: INTERACCIÓN 0001.  
+PROJECT AUTOMATON.  
+Date: 19.06.2023.  
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.  
+Edition: 1/3.  
+Size: 35 x 35cm.  
 
 ![AUTOMATONIMG02](ASSETS/AUTOMATONIMG02.jpeg)
 
-Título: INTERACCIÓN 0002.  
-PROYECTO AUTOMATON.  
-fecha: 07.07.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.   
-Edición: 1/3.  
-Dimensiones: 35 x 35cm.  
+Tittle: INTERACCIÓN 0002.  
+PROJECT AUTOMATON.   
+Date: 07.07.2023.  
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
+Edition: 1/3.  
+Size: 35 x 35cm.  
 
 ![AUTOMATONIMG03](ASSETS/AUTOMATONIMG03.jpeg)
 
-Título: INTERACCIÓN 0003.  
-PROYECTO AUTOMATON.  
-fecha: 22.07.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.  
-Edición: 1/3.  
-Dimensiones: 35 x 35cm. 
+Tittle: INTERACCIÓN 0003.  
+PROJECT AUTOMATON.  
+Date: 22.07.2023.  
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
+Edition: 1/3.  
+Size: 35 x 35cm. 
 
 ![AUTOMATONIMG04](ASSETS/AUTOMATONIMG04.jpeg)
 
-Título: INTERACCIÓN 0004.   
-PROYECTO AUTOMATON.  
-fecha: 05.08.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.    
-Edición: 1/3.  
-Dimensiones: 35 x 35cm.  
+Tittle: INTERACCIÓN 0004.   
+PROJECT AUTOMATON.  
+Date: 05.08.2023.  
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
+Edition: 1/3.  
+Size: 35 x 35cm.  
 
 ![AUTOMATONIMG05](ASSETS/AUTOMATONIMG05.jpeg)
 
-Título: INTERACCIÓN 0005.  
-PROYECTO AUTOMATON.  
-fecha: 18.08.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.   
-Edición: 1/3.  
-Dimensiones: 35 x 35cm.  
+Tittle: INTERACCIÓN 0005.  
+PROJECT AUTOMATON.  
+Date: 18.08.2023.  
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
+Edition: 1/3.  
+Size: 35 x 35cm.  
 
 ![AUTOMATONIMG06](ASSETS/AUTOMATONIMG06.jpeg)
 
-Título: INTERACCIÓN 0006.  
-PROYECTO AUTOMATON.  
-fecha: 31.08.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.   
-Edición: 1/3
-Dimensiones: 35 x 35cm.  
+Tittle: INTERACCIÓN 0006.  
+PROJECT AUTOMATON.  
+Date: 31.08.2023.  
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
+Edition: 1/3
+Size: 35 x 35cm.  
 
 ![AUTOMATONIMG07](ASSETS/AUTOMATONIMG07.jpeg)
 
-Título: INTERACCIÓN 0007.  
-PROYECTO AUTOMATON
+Tittle: INTERACCIÓN 0007.  
+PROJECT AUTOMATON
 fecha: 10.09.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.   
-Edición: 1/3
-Dimensiones: 35 x 35cm.
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
+Edition: 1/3
+Size: 35 x 35cm.
 
 ![AUTOMATONIMG08](ASSETS/AUTOMATONIMG08.jpeg)
 
-Título: INTERACCIÓN 0008.  
-PROYECTO AUTOMATON.  
-fecha: 19.09.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.  
-Edición: 1/3.  
-Dimensiones: 35 x 35cm.  
+Tittle: INTERACCIÓN 0008.  
+PROJECT AUTOMATON.  
+Date: 19.09.2023.  
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
+Edition: 1/3.  
+Size: 35 x 35cm.  
 
 
 ![AUTOMATONIMG009](ASSETS/AUTOMATONIMG09.jpeg)
 
-Título: INTERACCIÓN 0009.  
-PROYECTO AUTOMATON.  
-fecha: 27.09.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.   
-Edición: 1/3.  
-Dimensiones: 35 x 35cm.  
+Tittle: INTERACCIÓN 0009.  
+PROJECT AUTOMATON.  
+Date: 27.09.2023.  
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
+Edition: 1/3.  
+Size: 35 x 35cm.  
 
 ![AUTOMATONIMG10](ASSETS/AUTOMATONIMG10.jpeg)
 
-Título: INTERACCIÓN 0010.  
-PROYECTO AUTOMATON.  
-fecha: 12.10.2023.  
-Técnica: xilografía sintética (impresa manualmente) Tinta base grasa sobre acetato transparente 0.1mm.   
-Edición: 1/3.  
-Dimensiones: 35 x 35cm.  
+Tittle: INTERACCIÓN 0010.  
+PROJECT AUTOMATON.  
+Date: 12.10.2023.  
+Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
+Edition: 1/3.  
+Size: 35 x 35cm.  
 
 
 <br>
