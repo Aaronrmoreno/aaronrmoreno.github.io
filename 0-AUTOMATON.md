@@ -23,7 +23,7 @@ Dimensions: Original print and matrixes - 10.5x10.5 cm, Acetate - 30x30 cm.
 
 ![AUTOMATONIMG01](ASSETS/AUTOMATONIMG01.jpeg)
 
-Tittle: INTERACCIÓN 0001.  
+Tittle: INTERACTION 0001.  
 PROJECT AUTOMATON.  
 Date: 19.06.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.  
@@ -32,7 +32,7 @@ Size: 35 x 35cm.
 
 ![AUTOMATONIMG02](ASSETS/AUTOMATONIMG02.jpeg)
 
-Tittle: INTERACCIÓN 0002.  
+Tittle: INTERACTION 0002.  
 PROJECT AUTOMATON.   
 Date: 07.07.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
@@ -41,7 +41,7 @@ Size: 35 x 35cm.
 
 ![AUTOMATONIMG03](ASSETS/AUTOMATONIMG03.jpeg)
 
-Tittle: INTERACCIÓN 0003.  
+Tittle: INTERACTION 0003.  
 PROJECT AUTOMATON.  
 Date: 22.07.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
@@ -50,7 +50,7 @@ Size: 35 x 35cm.
 
 ![AUTOMATONIMG04](ASSETS/AUTOMATONIMG04.jpeg)
 
-Tittle: INTERACCIÓN 0004.   
+Tittle: INTERACTION 0004.   
 PROJECT AUTOMATON.  
 Date: 05.08.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
@@ -59,7 +59,7 @@ Size: 35 x 35cm.
 
 ![AUTOMATONIMG05](ASSETS/AUTOMATONIMG05.jpeg)
 
-Tittle: INTERACCIÓN 0005.  
+Tittle: INTERACTION 0005.  
 PROJECT AUTOMATON.  
 Date: 18.08.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
@@ -68,7 +68,7 @@ Size: 35 x 35cm.
 
 ![AUTOMATONIMG06](ASSETS/AUTOMATONIMG06.jpeg)
 
-Tittle: INTERACCIÓN 0006.  
+Tittle: INTERACTION 0006.  
 PROJECT AUTOMATON.  
 Date: 31.08.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
@@ -77,7 +77,7 @@ Size: 35 x 35cm.
 
 ![AUTOMATONIMG07](ASSETS/AUTOMATONIMG07.jpeg)
 
-Tittle: INTERACCIÓN 0007.  
+Tittle: INTERACTION 0007.  
 PROJECT AUTOMATON
 fecha: 10.09.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
@@ -86,7 +86,7 @@ Size: 35 x 35cm.
 
 ![AUTOMATONIMG08](ASSETS/AUTOMATONIMG08.jpeg)
 
-Tittle: INTERACCIÓN 0008.  
+Tittle: INTERACTION 0008.  
 PROJECT AUTOMATON.  
 Date: 19.09.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
@@ -96,7 +96,7 @@ Size: 35 x 35cm.
 
 ![AUTOMATONIMG009](ASSETS/AUTOMATONIMG09.jpeg)
 
-Tittle: INTERACCIÓN 0009.  
+Tittle: INTERACTION 0009.  
 PROJECT AUTOMATON.  
 Date: 27.09.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
@@ -105,7 +105,7 @@ Size: 35 x 35cm.
 
 ![AUTOMATONIMG10](ASSETS/AUTOMATONIMG10.jpeg)
 
-Tittle: INTERACCIÓN 0010.  
+Tittle: INTERACTION 0010.  
 PROJECT AUTOMATON.  
 Date: 12.10.2023.  
 Technique: synthetic woodcut (manually printed). Grease-based ink on transparent acetate 0.1mm.   
