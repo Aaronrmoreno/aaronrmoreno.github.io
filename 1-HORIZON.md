@@ -10,6 +10,12 @@ Horizon is a video art created in collaboration with the artist Piera Riccio. Th
 
 [![PSYCHLOOP4](ASSETS/PSYCHLOOP4.jpg)](https://vimeo.com/1037265398)
 
+PROJECT HORIZON Date: 2021.  
+Technique: Video Art.  
+Edition: 1/1.  
+Duration: 2 minutes.  
+Link: https://vimeo.com/1037310003
+
 <b>
 <b>
 
