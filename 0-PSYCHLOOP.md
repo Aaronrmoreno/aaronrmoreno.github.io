@@ -22,7 +22,7 @@ Dimensions: 3000 px x 3000 px.
 
 ![PSYCHLOOP1](ASSETS/PSYCHLOOPS03.gif) 
 
-PROJECT PSYCHLOOP 01.  
+PROJECT PSYCHLOOP 03.  
 Date: 2018.  
 Digital loop animation, GIFs based on the Phenakitiscope.   
 Edition: 1/1.  
