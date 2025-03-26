@@ -23,11 +23,11 @@ Contacts: one7rom@gmail.com
 2012 - Semester in the exchange program of Documentary Film Production, Tisch School of the Art (NYU), Havana, Cuba.   
 <br>
 
-#### SOLO EXHIBITION 
+#### SOLO EXHIBITIONS 
 2023 - “Automaton”, solo show at Ludwig Foundation of Cuba and the University of Arts (ISA), Havana, Cuba.  
 <br>
 
-#### EXHIBITIONS   
+#### COLLECTIVE EXHIBITIONS   
 2024 - “Art Exchange Festival 2nd edition”, Galería Artniches, Madrid, Spain.   
 2023 - “Art Exchange Festival 1st edition”, Galería Nueva, Madrid, Spain.   
 2023 - “Juana de las Flores”, group show, La Lavandería art space, Havana, Cuba.  
