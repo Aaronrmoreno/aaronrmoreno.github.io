@@ -1,6 +1,6 @@
 # AXIS.VISUAL LAB
 
-AXIS.Visual Lab is an independent collective of artists founded in 2013 by me Aaron Randy Moreno (aka Onerom) and my partner Milton Raggi. 
+AXIS.Visual Lab is an independent collective of artists founded in 2013 by me Aaron Randy Moreno and my partner Milton Raggi. 
 
 Driven by a deep fascination with technology, we allow it to shape and inspire our creative production.
 
