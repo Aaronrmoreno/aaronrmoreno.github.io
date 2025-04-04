@@ -4,7 +4,8 @@ His projects explore fundamental questions about existence, perception, and tran
 
 At the core of his practice lies the belief that artificial beauty, in any of its forms, represents the purest act of kindness toward the world. This conviction serves as his principal motivation for creating art.
 
-
+<br>
+<br>
 
 [GO BACK](https://aaronrmoreno.github.io/ABOUT)
 
