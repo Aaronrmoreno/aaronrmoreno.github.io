@@ -1,6 +1,3 @@
----
-layout: default
----
 
 [WORKS](https://aaronrmoreno.github.io/WORKS)
 
