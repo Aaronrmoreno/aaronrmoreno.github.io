@@ -1,1 +1,7 @@
+remote_theme: jekyll/minima
+plugins:
+  - jekyll-remote-theme
+minima:
+  skin: dark
+
 title: Aaron R Moreno
