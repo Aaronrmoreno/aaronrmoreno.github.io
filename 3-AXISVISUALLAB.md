@@ -1,4 +1,4 @@
-# AXIS VISUAL LAB
+# AXIS.VISUAL LAB
 
 AXIS.Visual Lab is an independent collective of artists founded in 2013 by Aaron Randy Moreno (aka Onerom) and Milton Raggi. Driven by a deep fascination with technology, we allow it to shape and inspire our creative production.
 
@@ -6,11 +6,10 @@ Our practice often materializes through audiovisual, interactive, and immersive 
 
 Our mission is to spotlight technology-based art within the Cuban contemporary art scene, fostering greater recognition and gradually building an expansive network dedicated to this innovative genre.
 
-<br>
 
-## Note: We are working on a new and improve website for Axis, because of this the archive of the project is provisionally hosted in my partner website:
+## Note: We are working on a new and improve website for Axis, because of this the archive of the project is provisionally hosted in my partner website:   
 
-## [Axis Visual Lab](https://miltonraggivinueza.godaddysites.com/axis-visual-lab)
+# [Axis.Visual Lab](https://miltonraggivinueza.godaddysites.com/axis-visual-lab)
 
 <br>
 <br>
