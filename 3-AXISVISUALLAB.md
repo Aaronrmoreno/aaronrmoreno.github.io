@@ -10,7 +10,7 @@ Our mission is to spotlight technology-based art within the Cuban contemporary a
 
 <br>
 
-## Note: We are working on a new and improve website for Axis, because of this the archive of the project is provisionally hosted in my partner website:   
+## Note: We are currently working on a new and improved website for Axis. In the meantime, the project archive is temporarily hosted on my partner's website:
 
 # [Axis.Visual Lab](https://miltonraggivinueza.godaddysites.com/axis-visual-lab)
 
