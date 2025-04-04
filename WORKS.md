@@ -1,4 +1,3 @@
-# SERIES:
 
 [MATERIA](https://aaronrmoreno.github.io/MATERIA)
 
