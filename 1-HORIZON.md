@@ -8,7 +8,7 @@ Video: [https://vimeo.com/1037310003](https://vimeo.com/1037310003)
 
 <br>
   
-![PSYCHLOOP4](ASSETS/PSYCHLOOP4.jpg)
+![Horizon.jpeg](ASSETS/Horizon.jpeg)
 
 PROJECT HORIZON Date: 2021.  
 Technique: Video Art.  
