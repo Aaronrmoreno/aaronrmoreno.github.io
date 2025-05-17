@@ -50,7 +50,13 @@ Contacts: one7rom@gmail.com
 2013 - “Maia”, New Latin-American Film Festival, Karl Marx National Theatre, Havana Cuba.   
 2013 - “Concreto 10080”, Norwegian Embassy in Cuba, Havana, Cuba.   
 2013 - “Beta I”, Casa Tomada, Casa de las Américas, Havana, Cuba.   
+<br>
 
+####RELEVANT CURATORIAL SHOWS
+2025. “Transcultura” UNESCO program closure, Convento Santa Clara, La Habana, Cuba.
+2025. “30th Anniversary, Ludwig Foundation of Cuba”, La Habana, Cuba.
+2024. “Menos Mal”, a show about garbage, Ludwig Foundation of Cuba. La Habana, Cuba.
+2020. “#FuckReality”, AR / VR show with Andgewandte University Wien, Ludwig Foundation of Cuba, La Habana, Cuba.
 
 <br>
 <br>
