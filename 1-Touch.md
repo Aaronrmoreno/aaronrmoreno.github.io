@@ -6,7 +6,7 @@ This work consists of a color print created using the reduction woodcut techniqu
 
 <br>
 
-![AUTOMATON](ASSETS/AUTOMATONINSTALL.jpg)
+![AUTOMATON](ASSETS/TOUCHh.jpg)
 
 PROJECT TOUCH (April 2003 unknown place).  
 Date: 2015.  
