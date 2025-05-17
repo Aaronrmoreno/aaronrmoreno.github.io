@@ -8,7 +8,7 @@ I have always been fascinated by the limits of our perception and the different 
 
 1 - [TOUCH](https://aaronrmoreno.github.io/1-Touch)
 
-2 - [TOUCH](https://aaronrmoreno.github.io/1-BUYING SHADES)
+2 - [BUYING SHADES](https://aaronrmoreno.github.io/1-BUYINGSHADES)
 
 3 - [AXIS.VISUAL LAB](https://aaronrmoreno.github.io/3-AXISVISUALLAB)
 
