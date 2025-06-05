@@ -18,4 +18,4 @@ Our mission is to spotlight technology-based art within the Cuban contemporary a
 <br>
 
 
-[GO BACK](https://aaronrmoreno.github.io/WORKS)
+[GO BACK](https://aaronrmoreno.github.io)
